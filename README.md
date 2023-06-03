@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iamvishnub
+- 👋 Hi, I’m Vishnu B
 - 👀 I’m interested in coding
 - 🌱 I’m currently studying at city engineering college
 - 📫 you can reach me on linked in 
